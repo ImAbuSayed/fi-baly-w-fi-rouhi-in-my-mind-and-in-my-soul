@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حبيبي قلبي معاك
+> روحي بتناديك في كل مكان
+> نار الشوق بتكوي الروح
+> في بالي وفي روحي أنت الأمان
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
